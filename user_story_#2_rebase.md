@@ -38,3 +38,5 @@ I pulled up to the house about 7 or 8
 And I yelled to the cabbie "Yo holmes, smell ya later"
 Looked at my kingdom, I was finally there
 To sit on my throne as the Prince of Bel-Air
+
+Then I got stuck in a basement.
